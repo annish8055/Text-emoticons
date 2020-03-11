@@ -1,5 +1,5 @@
 # Text-emoticons
-for personal use  ¯\_(ツ)_/¯
+for personal use  ¯\_(ツ)_/¯ 
 
 The Most Popular Text Emoticons
  
